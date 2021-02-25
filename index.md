@@ -4,6 +4,7 @@ Hey! I'm Stephen Singler, a sophmore at Boise State University and this website 
 ### More about me
 
 * I play the piano for fun
+  * Mostly sound tracks from video games (mostly Zelda songs at the moment)
 * I graduated from Torrey Pines High School in 2019
 * I have a younger sister
 * I have done a Korean martial art called Tang Soo Do for roughly 12 years now
